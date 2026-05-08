@@ -1,2 +1,1 @@
-# Nam-s-project
-for badges
+# Nam-s-projec!
